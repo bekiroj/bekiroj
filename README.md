@@ -1,5 +1,5 @@
 ### Hi there, I'm Bekir  👋
-- 💌 For business, mail to me: bekiraskar42@gmail.com
+- 💌 For business, mail to me: yourpalbekir@gmail.com
 
 <br />
 
